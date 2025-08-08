@@ -1,0 +1,2 @@
+# Ai-Browser
+Privacy Policy
